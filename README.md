@@ -1,1 +1,1 @@
-My first readme
+i am still bad kek
